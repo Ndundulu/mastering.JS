@@ -1,1 +1,1 @@
-# Hello, Kitheka's Family! In the name of Jesus, I declare that I will accomplish more in my career in three months than I have in my entire life. Amen. Hallelujah!!
+# Hello, From today am a change man.
